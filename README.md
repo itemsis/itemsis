@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @itemsis
-- 👀 I’m interested in delivering best software to market.
+- 👀 I’m interested in delivering best software for market.
 - 🌱 I’m currently learning how people communicate effectively with each other.
 - 💞️ I’m looking to collaborate for better and responsible world.
 - 📫 How to reach me ...
